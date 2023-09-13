@@ -2,7 +2,7 @@
 - 👀 I’m interested in Learning
 - 🌱 I’m currently learning For Promotion
 - 💞️ I’m looking to collaborate on Crypto And Sciencis
-- 📫 How to reach me by mailing
+- 📫 How to reach me by mail me
 
 <!---
 TheoMirandes/TheoMirandes is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.

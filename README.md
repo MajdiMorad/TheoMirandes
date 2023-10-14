@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @TheoMirandes
 - 👀 I’m interested in Learning About Security
-- 🌱 I’m currently learning For Promotion in job
+- 🌱 I’m currently learning For Promotion in jobs
 - 💞️ I’m looking to collaborate on Crypto And Sciencis
 - 📫 How to reach me by mail me
 
